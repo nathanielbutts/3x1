@@ -1,4 +1,4 @@
-# 3x1
+# 3x+1
 Infamous, colossal waste of time.  Yet, here we are.
 
 ## Synthesis
